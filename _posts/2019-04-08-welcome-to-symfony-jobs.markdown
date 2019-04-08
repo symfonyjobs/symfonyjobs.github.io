@@ -2,7 +2,7 @@
 layout: post
 title:  "Welcome to Symfony Jobs"
 date:   2019-04-08 08:25:40 +0200
-categories: First Commit
+categories: Announcement
 ---
 
 <p>
