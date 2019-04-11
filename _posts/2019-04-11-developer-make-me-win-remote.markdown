@@ -67,7 +67,7 @@ We are looking for someone who wants to invest in this beautiful adventure. Good
 ## Practical details
 
 - Permanent or Freelance  _(no SSII)._ Employment contract    full-time
-- HomeOffice / Remote Friendly 🙂
+- HomeOffice / Remote Friendly 🙂 (Europe area)
 - Handicap Friendly 
 - **When**    : As soon as you are ready! 🚀
 - **Where**    : Remote, offices are located in Paris - Place de l&#39;Etoile
